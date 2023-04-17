@@ -21,7 +21,7 @@
 
 **some xtra info** 
 
-![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) —  im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart, i make kys/kms jokes often & use dark humor of highly offensive topics as a coping skill ![BDFpJHf](https://user-images.githubusercontent.com/130984454/232470541-5f22171d-db5c-4130-a681-bac8700a411d.gif)
+![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) —  im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart, i make kys/kms jokes often & use dark humor of highly offensive topics ![BDFpJHf](https://user-images.githubusercontent.com/130984454/232470541-5f22171d-db5c-4130-a681-bac8700a411d.gif)
 
 ✱ — i have mood swings pretty often, my social battery may also die suddenly so if i randomly go dry its probably from that, usually my status will display whats goin on !!!
 
