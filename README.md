@@ -34,7 +34,7 @@
 ✱ — im almost constantly using a translator for text, feel free to correct anything i mightve gotten wrong if i am not using it though as it'll help me learn, my english isnt good for vcs and im uncomfortable with talking over voice chats so dont ask to call because the answer will 99.9% of the time say no unless i can be muted
 
 
-![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) — im unlikely to reply to strangers DMs, but it mostly depends what your point of DMing me is for
+![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) — im unlikely to reply to strangers DMs, but it mostly depends what your point of DMing me is for ![8ca5ee58](https://user-images.githubusercontent.com/130984454/232467151-5751d374-07b2-4d72-99ea-67fdb872c78a.gif)
 
 
 ![barbed_wire_voodoo_doll_f2u_by_nerdy_pixel_girl_ddj995a-fullview](https://user-images.githubusercontent.com/130984454/232472601-ab0f8dbf-251e-49dd-a4e9-c48f0a0cc972.png)
