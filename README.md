@@ -1,3 +1,4 @@
+
 ![Picsart_23-04-16_00-39-04-811](https://user-images.githubusercontent.com/130984454/232466153-193142f3-f0a3-4e19-b8a7-23b94a682700.png)
 ![Tumblr_l_524774809418092](https://user-images.githubusercontent.com/130984454/232466233-6c70c177-6867-4b96-820d-617c3e9f0a55.gif)
 
@@ -57,12 +58,28 @@ nirvana, weezer, system of a down, blink-182, destroy boys, lil darkie, rebzyyx,
 
 
 ![dcvjzcq-12de72f3-30a5-4f56-a64a-9ed0ca4f7bc5](https://user-images.githubusercontent.com/130984454/232473478-fa19c518-09b0-4c46-aeb6-ac0eb36780f4.gif) ![deehp8j-e58f887d-1b33-41ee-9200-dcf6696e2776](https://user-images.githubusercontent.com/130984454/232473514-125cc871-1a77-4ca7-aadd-bbbe8c4d1d35.gif) ![dfeosfg-6ec355d7-ddd0-48f0-822c-7beec3f698f6](https://user-images.githubusercontent.com/130984454/232473530-9a6cca70-9d25-4ecd-b10b-25aed098fc03.gif) ![dcg4mcy-2cf16ea0-034c-47c6-9bd6-50decb173897](https://user-images.githubusercontent.com/130984454/232473603-968c474a-4017-4c47-ba76-b4346d55ab18.gif) ![dc0up3y-17b25587-2668-4bec-9e5e-5a14a6ccbda9](https://user-images.githubusercontent.com/130984454/232473688-65603153-0c65-4f15-8f07-c1465c96d0af.gif) ![tumblr_pbt66eZvmr1xzybrpo1_250](https://user-images.githubusercontent.com/130984454/232473734-92f9c22f-b7d3-47e7-8fec-6ea17316a06b.gif) ![tumblr_phldxzATQU1xlx2ufo2_250](https://user-images.githubusercontent.com/130984454/232473747-4c5bb01c-6ff6-4f9c-b588-ba931e3d9b4b.gif) ![tumblr_piczougJ2Z1sivjui_250](https://user-images.githubusercontent.com/130984454/232473756-a1ba0e43-af42-4583-a657-67dc7f01846c.gif) ![tumblr_p8ra5roiSk1xtxh11o1_250](https://user-images.githubusercontent.com/130984454/232473786-e98236f5-f047-42a3-b1b1-9178fdf6568c.gif) ![ddfp89e-44b17e5b-ff68-4cd4-9b66-391d61d08f5e](https://user-images.githubusercontent.com/130984454/232473821-c0f4bbf5-c14f-452d-bf92-c45f7542b4c3.gif) ![ddq0m5i-69abbff2-f0b3-47a6-b171-90699558bfe9](https://user-images.githubusercontent.com/130984454/232473837-47e03fec-08fb-4642-b678-11729d90a04a.gif) ![dffp9mi-917a7fcb-847b-4cd8-b9b1-415c2b162f1c](https://user-images.githubusercontent.com/130984454/232473919-750b2bce-c1d6-49f2-b998-175a238a2a43.gif)![df2dyg0-1e7e24f9-243b-47c1-9c1c-8857ab2801e0](https://user-images.githubusercontent.com/130984454/232473961-866042f7-c920-4b8c-a5e3-0f6abde5eba9.gif)![dd9qur6-87d3d9ee-c69b-4408-b5a9-e3d190352cb2](https://user-images.githubusercontent.com/130984454/232473972-e4bc8f7c-b6c5-4890-8ecb-654d256418c5.gif) ![dd5ffi6-cc568e0b-1257-4b41-aec8-ceb6cc0548da](https://user-images.githubusercontent.com/130984454/232474014-f7bda33f-fa07-477c-bd2e-9c5fc8abde53.gif) ![dfspdg7-546d0d14-51f6-4177-b936-4157c0df81ab](https://user-images.githubusercontent.com/130984454/232474027-75dc1870-c2cd-4945-88e5-36d8a7a5d446.gif) ![denjmao-13b07c51-b64d-4b50-a82b-07c0a74bb31a](https://user-images.githubusercontent.com/130984454/232474057-0075298b-2f60-4ec3-ad11-35a144b55785.gif) ![dd9wzpu-085c7dae-e593-4b22-8d78-a47490beed64](https://user-images.githubusercontent.com/130984454/232474072-57dbe565-e7ce-4471-987b-bdf27a07e648.gif) ![b61a2716](https://user-images.githubusercontent.com/130984454/232474127-68c2105c-0866-40a6-b881-c8dd3c394958.gif) ![ddfp8oz-48cb1cea-b0e4-4694-8b25-a1dfe97b0be0](https://user-images.githubusercontent.com/130984454/232474834-362b3f6d-b5b0-4be6-a17c-398f493df929.gif) 
+
+
+
+![d12x070-382e73e6-89b0-4996-8cd8-063274eb121d](https://user-images.githubusercontent.com/130984454/232585787-c64c7022-eca0-482c-8468-b918573748f6.jpg) ![d3g56fd-38dac24c-60ed-4054-9c68-d59570a400a7](https://user-images.githubusercontent.com/130984454/232585803-66d24f31-7634-4494-95c8-9bc79d745fc5.png) ![d3f52g5-ea8e60db-8ee6-41ed-955e-af7fcab48749](https://user-images.githubusercontent.com/130984454/232586132-afc5d6e1-4184-4b44-b977-d0dbb65941fb.png) ![anti_fictionkin_stamp_by_kacie_e_da3spym-fullview](https://user-images.githubusercontent.com/130984454/232586154-6778970a-4c95-41dc-8edc-38816d414948.png) ![d5f49cn-4d4b0602-5aa8-4320-b9d7-6e000be4e67c](https://user-images.githubusercontent.com/130984454/232586185-eab32ba7-5053-4168-baa8-8435d35ce015.gif) ![d9zlppw-ec9ae0ae-ed27-4f6d-a378-07eddcfa3438](https://user-images.githubusercontent.com/130984454/232586202-55a9e42f-0a5f-4007-bfc8-ee20a21af4f9.gif) ![stamp_by_shadowstar14_d2aifi9-fullview](https://user-images.githubusercontent.com/130984454/232586217-c914bc1f-499e-496e-9ffd-7521bb6b787f.png) ![d2dis9o-3a15101a-d2e7-4202-82b2-ecb33e771169](https://user-images.githubusercontent.com/130984454/232586246-d0b45173-33fd-4d63-94da-a4ec6d705e37.png) ![stamp___lazy_by_dragon_fx_d1t8sjb-fullview](https://user-images.githubusercontent.com/130984454/232586275-3a2c917d-b49c-4cc6-b2a3-2bd8b0866978.png) 
+
+
+
+
+
+
+
+
+
+
+
   
 
-
+**content warning 4 my links**
  
 
-wip lol
+![da4dbxf-176f5da5-b9de-4cc9-bb1e-f61072189a3f](https://user-images.githubusercontent.com/130984454/232585566-c50973c4-a5fc-4205-8858-482a76da9814.png) ![da4dbvi-f7c21217-0e8e-4a7c-b83b-c099d668a5a2](https://user-images.githubusercontent.com/130984454/232585656-7e5e014f-33ac-4b11-854f-091578d3518f.png) ![da4dn3r-ebaa1e2b-e408-4dd9-bc21-a37bc76f24c7](https://user-images.githubusercontent.com/130984454/232585676-a02c3f92-cc40-4749-acd6-ef79473e6251.png) ![da4dbva-0153b9b5-36d9-4b0c-a32e-2e0148cd8d42](https://user-images.githubusercontent.com/130984454/232585695-ef9b4609-37cf-491d-b796-78350f396a0a.png) ![da4do77-933419bd-1161-4d95-9d08-29cb73eaa27b](https://user-images.githubusercontent.com/130984454/232585716-e4f972fe-da65-4f2e-b898-6da808b3dcb2.png) ![da4dbx2-d44243e3-4776-459c-b822-9cb3025cc9bf](https://user-images.githubusercontent.com/130984454/232585728-f6a11491-77c6-4629-adf8-90b348d3cfc6.png) 
+
 
 
 
