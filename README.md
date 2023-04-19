@@ -5,7 +5,7 @@
 ╰ヾ problematic & controversial person, you have been warned ![8ca5ee58](https://user-images.githubusercontent.com/130984454/232467151-5751d374-07b2-4d72-99ea-67fdb872c78a.gif)
 
 ![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) — names i go by are CRNGE ![bfeb6cbe_original](https://user-images.githubusercontent.com/130984454/232468626-03155e97-62cc-4b6b-a5e1-73ae4eb6828d.gif)
- **CERVUS** (ADLT '05) ;; HE / HIM , preferrably no they/them or fem prns 
+ **CERV** (ADLT '05) ;; HE / HIM , preferrably no they/them or fem prns 
 
 105k on [youtube](https://www.youtube.com/@crnge204) , animator+artist ![tumblr_b995df7461f69b2c38396318ae3554f2_5afdaafd_75](https://user-images.githubusercontent.com/130984454/232468741-a2d78f6e-ffa6-47a4-8eb4-9935853d3d75.gif)
 
