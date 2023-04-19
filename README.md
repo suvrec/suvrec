@@ -29,7 +29,7 @@
 
 ✱ — i will not automatically use tone tags as i find them confusing, if you are someone that *needs* them just lmk ill most likely be willing to use them exclusively for you 
 
-![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) — im a diagnosed schizophrenic & i also have ADHD, rest are unlisted but if we're close i dont mind you asking
+![0323be38](https://user-images.githubusercontent.com/130984454/232468017-09b3323d-8a84-4010-89d3-05d76b384ded.gif) — im a diagnosed schizophrenic & also have ADHD, rest are unlisted but if we're close i dont mind you asking
 
 ✱ — im almost constantly using a translator for text, feel free to correct anything i mightve gotten wrong if i am not using it though as it'll help me learn, my english isnt good for vcs and im uncomfortable with talking over voice chats so dont ask to call because the answer will 99.9% of the time say no unless i can be muted
 
